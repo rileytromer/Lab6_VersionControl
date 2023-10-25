@@ -1,2 +1,0 @@
-# Riley Tromer
-# Ethan Chestnut
